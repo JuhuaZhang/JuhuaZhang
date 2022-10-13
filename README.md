@@ -1,5 +1,4 @@
 ### Hi there 👋
 
-- 🔭 I’m currently struggling on finishing homework.
-- 🌱 I’m currently learning how to survive.
+- 🌱 Nice to meet you there.
 - 📫 How to reach me: Davividzjh@gmail.com
